@@ -1,0 +1,1 @@
+# DOWNLOAD_MiniTool-Partition-Wizard-12.9-Full-Activation-Key-fp
